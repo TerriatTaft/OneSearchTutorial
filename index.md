@@ -19,7 +19,7 @@ Here are tutorials you may find useful
 * [Reference Sources](https://lib.taftcollege.edu/c.php?g=772423) 
 * [Scholarly and Peer Reviewed Journals](https://lib.taftcollege.edu/ScholarlyandPeerReviewedJournals) 
 * [What is a Call Number?](https://lib.taftcollege.edu/c.php?g=773309) 
-* [Types of Sources](https://lib.taftcollege.edu/typesofsources) by Sarah Schrag
+* [Types of Sources](https://lib.taftcollege.edu/typesofsources) 
 
 <br> 
 
